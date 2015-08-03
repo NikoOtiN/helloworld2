@@ -1,1 +1,1 @@
-i follow you
+The Earth moves round the sun.
